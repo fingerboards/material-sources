@@ -1,8 +1,9 @@
 Sources:
 
-#### Neoprene Rubber Black Self-Adhesive Sponge Strip 1 1/2" Wide x 1 wide
+#### 1. Neoprene Rubber Black Self-Adhesive Sponge Strip 1 1/2" Wide x 1 wide
 ##### https://www.ebay.com/itm/383454706212
 
+Description:
 - Product Dimensions: 6 x 6 x 2 inches; 6.53 Ounces
 - Item model number: CECOMINOD049393
 - Manufacturer: Rubber Stuff
