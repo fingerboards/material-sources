@@ -1,6 +1,6 @@
 Sources:
 
-#### New V2 square base fingerboard trucks
+#### New V2 square base fingerboard trucks (fake BRTs)
 ##### https://www.alibaba.com/product-detail/New-V2-square-base-fingerboard-trucks_1600490436493.html
 
 Description:
